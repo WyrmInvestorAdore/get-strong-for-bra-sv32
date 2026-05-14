@@ -1,4 +1,4 @@
-#  
+#  get strong for brainrots vip Scripts offers the most advanced get strong for brainrots Script, with auto-upgrade and god mode. Perfect for dominating
 
 
 
